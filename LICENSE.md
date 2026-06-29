@@ -1,4 +1,4 @@
-# 
+# adopt me new Scripts offers the most advanced adopt me Script, with esp and auto-farm. Perfect for dominating any match.
 
 
 
